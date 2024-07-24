@@ -1,8 +1,5 @@
 ## Hi there 👋
 
-<!--
-**NeveZ-gif/NeveZ-gif** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 I'm Neve, a Master of City Planning student at the University of Pennsylvania, concentrating in Smart Cities⚡and Ecological Planning🌱.
 
 ✨ About Me ✨
