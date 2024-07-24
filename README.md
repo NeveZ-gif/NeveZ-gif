@@ -8,4 +8,4 @@ I'm Neve, a Master of City Planning student at the University of Pennsylvania.
 - 🔭 Expertise in data analysis, technical writing, market and policy research
 - 🖼️ Experience in exhibition and architecture design
 - 🌱 Nature Lover + Global Traveller
-- 📫 Contact: tianyuzh@upenn.edu
+- 📫 LinkedIn: www.linkedin.com/in/tianyu-neve-zhang ; Email: tianyuzh@upenn.edu
