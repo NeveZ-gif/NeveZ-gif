@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-I'm Neve, a Master of City Planning student at the University of Pennsylvania, concentrating in Smart Cities⚡and Ecological Planning🌱.
+I'm Neve, a Master of City Planning student at the University of Pennsylvania.
 
 ✨ About Me ✨
 - 🎓 Master of City Planning 25' + Bachelor of Fine Arts 23'
